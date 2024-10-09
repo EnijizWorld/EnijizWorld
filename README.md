@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Enoch Adeniji
-- 👀 I’m interested in Web Dev Jobs Remotely
-- 🌱 I’m currently learning ...
+- 👀 I’m interested in Data and Financial Analyst Roles Remotely
+- 🌱 I am open to more challenging tasks and competitions. Always looking forward to growing with new people in new environment.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
 - adenijienoch.wunmi@gmail.com
